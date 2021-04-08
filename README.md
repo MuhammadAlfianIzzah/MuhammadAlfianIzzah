@@ -10,6 +10,6 @@ If it's a matter of my expertise, I can use a web frontend like html, css then t
 ## 📬 Get in touch
 
 
-other github😁😁😃 : https://github.com/MuhammadAlfianIzzah
+other github😁😁😃 : https://github.com/F1G118034-Muhammad-alfian-izzah
 
 # THANK YOU FOR VISITING MY GITHUB PROFILE ❤🧡💛💚💙
